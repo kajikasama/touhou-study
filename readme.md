@@ -16,3 +16,4 @@ untuk memahami kaum-kaum **Wibu** tanpa akhlak untuk masuk ke fandom Touhou Proj
 Oke Features Selanjutnya Coming Soon ..
 
 > dahlah males mending lanjut ~~tidur~~ ngoding ~ **Chandra**
+![Yukari Spellcard](yukari-train.gif)
